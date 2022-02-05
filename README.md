@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @vanFlips
 - 👀 I’m interested in ... jor biden f
-- 🌱 I’m currently learning ... jaba 
+- 🌱 I’m f jaba jab fjjfjffjlakmlkmM<M><M>
+- nnn
+- \fjwh;;;;;;; 😀😀😀😀😀😀😀😀😀😀😀😀😀😀😀👍👍🐱👍
 - 💞️ I’m looking to collaborate on ... jaba
 - 📫 How to reach me ... jaba
 
